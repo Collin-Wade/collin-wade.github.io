@@ -1,1 +1,0 @@
-# collin-wade.github.io
